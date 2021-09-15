@@ -1,0 +1,3 @@
+Rock climbing
+Skiing
+Backpacking
